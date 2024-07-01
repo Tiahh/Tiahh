@@ -5,7 +5,7 @@
 
 ---
 
-## [🌐 CEO of SPDM Team S.R.L.](https://spdmteam.com/)
+## [🌐 CEO of SPDM SRLS](https://spdmteam.com/)
 ## [🚀 Founder of Arceus X & RoSaverX](https://spdmteam.com/arceusx)
 
 ### Languages & Technologies:
