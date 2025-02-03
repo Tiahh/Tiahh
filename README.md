@@ -16,6 +16,6 @@
 - Leveraging a blend of technical knowledge and marketing strategies to drive brand growth and engagement.
 
 ### 🔗 Connect with me:
-- [Discord](https://discord.gg/arceus)
+- [Discord](https://discord.spdmteam.com/)
 
 </details>
